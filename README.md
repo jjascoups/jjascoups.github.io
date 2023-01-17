@@ -1,4 +1,4 @@
 # jjascoups.github.io
 **Izellah Andrea R. Araneta**
-https://i.pinimg.com/736x/c4/8c/21/c48c21f0113c465b296d73686db9023f.jpg
-https://i.pinimg.com/474x/fc/4f/d9/fc4fd981e8dcf1c25c0dc3e577ae7e83.jpg
+![Random Pinoy Memes, Lowkey](https://user-images.githubusercontent.com/122416220/212906816-f7d70968-a030-4329-ba78-324bff7afe87.jpg)
+![Random Pinoy Memes, Lowkey](https://user-images.githubusercontent.com/122416220/212907056-0ffcdd41-087a-4997-9fb5-adac531d93bc.jpg)
