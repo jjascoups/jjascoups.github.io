@@ -11,3 +11,6 @@
 
 stream guys 🤣🤣😂😂😁👍
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gRnuFC4Ualw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+알잖아 어차피 ni izellah
+![316167822_1108072263207537_4862614966017254961_n](https://user-images.githubusercontent.com/122416220/214725205-c9c711db-392b-4de3-8ba4-fd32ff358fd1.jpg)
